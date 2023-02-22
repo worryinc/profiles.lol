@@ -1,1 +1,1 @@
-Place to share all things you!
+Profiles.lol is your mini personal portfolio.
